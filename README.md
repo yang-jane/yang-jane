@@ -6,6 +6,8 @@
 
 :email: y.jane179@gmail.com
 
+🎵: https://open.spotify.com/user/turtleissimo?si=edd3fc1150fd4192
+
 
 <!--
 **yang-jane/yang-jane** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
