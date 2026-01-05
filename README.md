@@ -1,12 +1,11 @@
 ### Hi, I'm Jane :)
 
-🌱  Interested in beautiful things
+🌱  Interested in many things...
 
 :sunflower: https://www.linkedin.com/in/janemyang
 
 :email: y.jane179@gmail.com
 
-🎵: https://open.spotify.com/user/turtleissimo?si=edd3fc1150fd4192
 
 
 <!--
