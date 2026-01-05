@@ -1,6 +1,6 @@
 ### Hi, I'm Jane :)
 
-🌱  Interested in creating pretty user interfaces and learning new things
+🌱  Interested in beautiful things
 
 :sunflower: https://www.linkedin.com/in/janemyang
 
